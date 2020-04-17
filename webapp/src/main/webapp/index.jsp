@@ -1,1 +1,1 @@
-this is best way to practice devops and it wil give a more confidence
+thsi is time for fully focus one our job so lets do it fast in ur self crack the job as soon as possible
